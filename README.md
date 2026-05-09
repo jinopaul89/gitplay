@@ -16,3 +16,6 @@ https://youtu.be/qZPWM3v6IdI
 videos to watch
 
 https://devopswithvikas.com/eud/bookings
+
+
+https://us02web.zoom.us/meeting/register/WScdwE_nQXC3Yw3aVZUNGg#/registration
