@@ -18,4 +18,10 @@ videos to watch
 https://devopswithvikas.com/eud/bookings
 
 
-https://us02web.zoom.us/meeting/register/WScdwE_nQXC3Yw3aVZUNGg#/registration
+https://us02web.zoom.us/meeting/register/WScdwE_nQXC3Yw3aVZUNGg#/registra
+
+
+
+digital marketing 
+
+https://zoom.us/webinar/register/WN_UNA7eLa5SziJXMSgyTXESw
