@@ -2,6 +2,10 @@ https://www.clouddevopshub.com/products/Terraform-For-DevOps--Cheatbook-69fda38f
 
 https://www.clouddevopshub.com/products/Terraform-For-DevOps--Cheatbook-69fda38f9bb06412fda68396
 
+top10 devtools
+
+https://us02web.zoom.us/meeting/register/tZwsf-6rqT4jGtVSbqBqN94uzNKqIvZ5S0D1#/registration
+
 
 aws cohert
 
