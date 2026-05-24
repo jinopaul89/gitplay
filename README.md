@@ -13,3 +13,5 @@ https://us06web.zoom.us/j/82986992714
 ai agent build
 
 https://learn.coachshwetagupta.com/web/lite/view/webinar/6a099d0afe86acb886326fe7
+
+https://meet.goto.com/847814069
