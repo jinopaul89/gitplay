@@ -15,3 +15,7 @@ ai agent build
 https://learn.coachshwetagupta.com/web/lite/view/webinar/6a099d0afe86acb886326fe7
 
 https://meet.goto.com/847814069
+
+ajile
+
+https://zoom.tagmango.com/redirect/webinar/single/69b8e35064284a0d85f98945
