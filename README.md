@@ -7,7 +7,8 @@ be10x
 https://zoom.us/webinar/register/WN_Tu-oRrAnTRW6ok9tCsbUfg
 
 product builder
-https://zoom.us/webinar/register/WN_TBCskkYSSHK38pz9uIUUaw
+
+
 https://us06web.zoom.us/j/82986992714
 
 
@@ -28,3 +29,5 @@ consulting
 
 https://zoom.us/webinar/register/WN_TBCskkYSSHK38pz9uIUUaw
 
+
+https://us06web.zoom.us/j/85951737746
